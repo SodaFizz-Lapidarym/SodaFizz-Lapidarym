@@ -1,2 +1,2 @@
-<img src="https://static.wikitide.net/phightingwiki/thumb/3/38/Render_Dom_Phestival_Mermaid.png/180px-Render_Dom_Phestival_Mermaid.png">
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&redirect=true)<img src="https://static.wikitide.net/phightingwiki/thumb/3/38/Render_Dom_Phestival_Mermaid.png/180px-Render_Dom_Phestival_Mermaid.png">
 WIP :3
