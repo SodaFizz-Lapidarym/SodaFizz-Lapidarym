@@ -1,3 +1,3 @@
-<h2>Warning this contains flashing and fast moving gifs + Eyestrain </h2>
+<h2>LAYOUT CREDITS BY STOMACHBOOKS ON TUMBLR && C00LGUI STAMPS BY ICYPORCELAIN,,, ^.^ ; i am not big fan of layouts... i jst think their awesomeeeee :)</h2>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&redirect=true)<img src="https://64.media.tumblr.com/13ba85bc92ef098b48090dc895c25d23/5e9bb0345fe53f2d-92/s250x400/0562ab49d2b04e33dcf1e1ef91c1a25c7426c960.gifv"> 
